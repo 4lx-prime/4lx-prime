@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game development
 - 🌱 I’m currently learning some languages
 - 📫 How to reach me,
-- Instagram : @sarthak_x09
+- Instagram : @4lxprime_
 
 
 <!---
