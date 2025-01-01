@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sarthak-x09
+- 👋 Hi, I’m @4lx-prime
 - 👀 I’m interested in Game development
 - 🌱 I’m currently learning some languages
 - 📫 How to reach me,
